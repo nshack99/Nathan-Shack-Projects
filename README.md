@@ -1,1 +1,1 @@
-My personal and school Projects while attending UBC
+My personal and school projects while attending UBC
